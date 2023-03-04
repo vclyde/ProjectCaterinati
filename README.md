@@ -1,1 +1,1 @@
-# Collected works, biographies, prayers and devotions of St. Catherine of Siena
+# A collection of St. Catherine of Siena's biographies, works, prayers and devotions.
